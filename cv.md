@@ -1,7 +1,7 @@
 # Katsiaryna Shpakouskaya
 ## Earn wisely and with pleasure, constantly improving my skills.
 
-#### katya7126@gmail.com
+#### 📫 How to reach me: katya7126@gmail.com
 #### +375292744174
 ##### IT-Academy Certificate (Web Development using HTML, JavaScript, CSS)
 ##### IT-Academy Certificate (Adobe photoshop for Web & Graphic Design)
